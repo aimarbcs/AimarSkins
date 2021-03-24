@@ -1,5 +1,4 @@
-# Skins
-## This is a list of the skins that aimar use
+# This is a list of the skins that aimar use
 
 ## [Abyssal Thing](https://www.dropbox.com/s/y3nszd2ybt92r4d/Abyssal%20thing.osk?dl=0)
 
