@@ -1,6 +1,6 @@
 # This is a list of the skins that aimar use
 
-### Note that some skins are unavailable.
+### Note that some skins are unavailable (i'm probably too lazy to add it LOL) .
 
 ## [Abyssal Thing](https://www.dropbox.com/s/y3nszd2ybt92r4d/Abyssal%20thing.osk?dl=0)
 
