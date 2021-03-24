@@ -8,5 +8,9 @@
 
 ![alt text](https://osu.ppy.sh/ss/16375584/40fd)
 
-## [Happy Stick Blue Sliders]()
+## [Happy Stick Blue Sliders](https://circle-people.com/wp-content/Skins/HappyStick/HappyStick%202017-10-27%20Blue%20Slider.osk)
 ![alt text](https://osu.ppy.sh/ss/16375592/e74e)
+
+## [Ace Skin Mixerino](http://www.mediafire.com/file/4qqv328x584h7ry/Ace_Skin_Mixerino.osk/file)
+![alt text](https://osu.ppy.sh/ss/16375596/0543)
+
