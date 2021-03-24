@@ -39,5 +39,9 @@
 
 ## [404Ryuk](https://www.dropbox.com/s/kfg3evqhti3cvff/404Ryuk.osk?dl=0)
 
-![alt text](https://osu.ppy.sh/ss/16375829/c736 )
+![alt text](https://osu.ppy.sh/ss/16375829/c736)
+
+## [boom-bikko](https://www.dropbox.com/s/y5ywmnbxvmrw8v1/boombikko.osk?dl=0)
+
+![alt text](https://osu.ppy.sh/ss/16376374/96e3)
 
