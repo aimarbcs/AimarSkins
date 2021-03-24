@@ -3,7 +3,7 @@
 
 ### Note that some skins are unavailable (i'm probably too lazy to add it LOL) .
 
-## [Flashy Hits](https://www.dropbox.com/s/qwxhpv2l05rm038/hits.rar?dl=0)
+# [Flashy Hits](https://www.dropbox.com/s/qwxhpv2l05rm038/hits.rar?dl=0)
 
 
 ## [Abyssal Thing](https://www.dropbox.com/s/y3nszd2ybt92r4d/Abyssal%20thing.osk?dl=0)
