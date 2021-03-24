@@ -1,6 +1,10 @@
 # This is a list of the skins that aimar use
 
+
 ### Note that some skins are unavailable (i'm probably too lazy to add it LOL) .
+
+## [Flashy Hits](
+
 
 ## [Abyssal Thing](https://www.dropbox.com/s/y3nszd2ybt92r4d/Abyssal%20thing.osk?dl=0)
 
@@ -21,7 +25,7 @@
 
 ![alt text](https://osu.ppy.sh/ss/16375605/3dd1)
 
-## [Varvalian Thing](https://www.dropbox.com/s/fjsi13wv11r6m1e/Varvailar%20BlueCursor.osk?dl=0)
+## [Varvalian Thing](https://www.dropbox.com/s/fjsi13wv11r6m1e/Varvailan%20BlueCursor.osk?dl=0)
 
 ![alt text](https://osu.ppy.sh/ss/16375609/7b65)
 
