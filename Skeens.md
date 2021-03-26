@@ -1,4 +1,4 @@
-# This is a list of the skins that aimar use
+# This is a list of skins that aimar use
 
 
 ### Note that some skins are unavailable (i'm probably too lazy to add it LOL) .
