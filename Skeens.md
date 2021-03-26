@@ -45,3 +45,10 @@
 
 ![alt text](https://osu.ppy.sh/ss/16376374/96e3)
 
+## [BDDav v4 cptnxn](https://www.dropbox.com/s/xxb51o6y1vrfqzz/BDDav%20v4%20cptnxn%20ver..osk?dl=0)
+
+![alt text](https://osu.ppy.sh/ss/16383961/2823)
+
+## [Black 2014](http://puu.sh/95kna/0069a85571.osk)
+
+![alt text](https://osu.ppy.sh/ss/16383966/8a2d)
