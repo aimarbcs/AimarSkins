@@ -9,7 +9,7 @@
 
 ## [Abyssal Thing](https://www.dropbox.com/s/y3nszd2ybt92r4d/Abyssal%20thing.osk?dl=0)
 
-![alt text](https://media1.tenor.com/images/1f2213cae9770f2cf0ea67ebfc64b376/tenor.gif?itemid=20917034)
+![alt text](https://osu.ppy.sh/ss/16375563/34f8)
 
 ## [GN Rustbell bimbim](https://www.dropbox.com/s/rt46pf01y6qau94/-GN%20Rustbell%20Blanks%20bimbim.osk?dl=0)
 
