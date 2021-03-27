@@ -2,6 +2,7 @@
 
 
 ### Note that some skins are unavailable (i'm probably too lazy to add it LOL) .
+### Please contact me through discord, aimar#0112 , if link = ded.
 
 # [Flashy Hits](https://www.dropbox.com/s/qwxhpv2l05rm038/hits.rar?dl=0)
 
