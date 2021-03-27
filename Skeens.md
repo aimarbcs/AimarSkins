@@ -23,7 +23,7 @@
 ![alt text](https://media.giphy.com/media/ruGoA9vquoDxp0mcoo/giphy.gif)
 
 ## [Varvalian Thing](https://www.dropbox.com/s/fjsi13wv11r6m1e/Varvailan%20BlueCursor.osk?dl=0)
-![alt text](https://osu.ppy.sh/ss/16375609/7b65)
+![alt text](https://media.giphy.com/media/uqyNCq5nX7zg6EbtDQ/giphy.gif)
 
 ## [Sayonara-Bye](https://www.dropbox.com/s/88nfkoli1jqtsc3/Sayonara-Bye.osk?dl=0)
 ![alt text](https://osu.ppy.sh/ss/16375621/7d69)
