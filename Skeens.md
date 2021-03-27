@@ -35,7 +35,7 @@
 ![alt text](https://osu.ppy.sh/ss/16375829/c736)
 
 ## [boom-bikko](https://www.dropbox.com/s/y5ywmnbxvmrw8v1/boombikko.osk?dl=0)
-![alt text](https://osu.ppy.sh/ss/16376374/96e3)
+![alt text](https://media.giphy.com/media/D0pPOLyVN74TmwVrqR/giphy.gif)
 
 ## [BDDav v4 cptnxn](https://www.dropbox.com/s/xxb51o6y1vrfqzz/BDDav%20v4%20cptnxn%20ver..osk?dl=0)
 ![alt text](https://osu.ppy.sh/ss/16383961/2823)
