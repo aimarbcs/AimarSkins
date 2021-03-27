@@ -44,7 +44,7 @@
 ![alt text](https://media.giphy.com/media/isn5YMUERLY7hHmtb7/giphy.gif)
 
 ## [Doomsday 2.9](https://www.dropbox.com/s/huzk7s7m2ksup2y/Doomsday%20v2.9.osk?dl=0)
-![alt text](https://osu.ppy.sh/ss/16384234/46a3)
+![alt text](https://media.giphy.com/media/XPZLcasdlp1kpjX2T5/giphy.gif)
 
 ## [HappyStickOLD](https://www.dropbox.com/s/k45r08iau30f7iy/HappyStickOLD.osk?dl=0)
 ![alt text](https://osu.ppy.sh/ss/16388187/407a)
