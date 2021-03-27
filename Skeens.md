@@ -13,7 +13,7 @@
 
 ## [GN Rustbell bimbim](https://www.dropbox.com/s/rt46pf01y6qau94/-GN%20Rustbell%20Blanks%20bimbim.osk?dl=0)
 
-![alt text](https://osu.ppy.sh/ss/16375584/40fd)
+![alt text](https://media.giphy.com/media/VvvX9pjrIrZkWQIHh7/giphy.gif)
 
 ## [Happy Stick Blue Sliders](https://circle-people.com/wp-content/Skins/HappyStick/HappyStick%202017-10-27%20Blue%20Slider.osk)
 ![alt text](https://osu.ppy.sh/ss/16375592/e74e)
