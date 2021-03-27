@@ -26,7 +26,7 @@
 ![alt text](https://media.giphy.com/media/uqyNCq5nX7zg6EbtDQ/giphy.gif)
 
 ## [Sayonara-Bye](https://www.dropbox.com/s/88nfkoli1jqtsc3/Sayonara-Bye.osk?dl=0)
-![alt text](https://osu.ppy.sh/ss/16375621/7d69)
+![alt text](https://media.giphy.com/media/FaoNDGUh4djPbTU8T4/giphy.gif)
 
 ## [WWW 1.6.1](https://www.dropbox.com/s/x12sved9uimsp1q/WWW%20v1.6.1.osk?dl=0)
 ![alt text](http://osu.ppy.sh/ss/16375825/2f19)
