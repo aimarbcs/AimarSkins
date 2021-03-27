@@ -47,4 +47,4 @@
 ![alt text](https://media.giphy.com/media/XPZLcasdlp1kpjX2T5/giphy.gif)
 
 ## [HappyStickOLD](https://www.dropbox.com/s/k45r08iau30f7iy/HappyStickOLD.osk?dl=0)
-![alt text](https://osu.ppy.sh/ss/16388187/407a)
+![alt text](https://media.giphy.com/media/dS0gPo46ZeYW854TOQ/giphy.gif)
