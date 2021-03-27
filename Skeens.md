@@ -20,7 +20,7 @@
 ![alt text](https://media.giphy.com/media/ZLgj4Otj35WmJPrXqk/giphy.gif)
 
 ## [BlooKC](https://drive.google.com/file/d/1Tn2H27r-I4A5O86NyRUSNAD3yEUz1o9S/view?usp=sharing)
-![alt text](https://osu.ppy.sh/ss/16375605/3dd1)
+![alt text](https://media.giphy.com/media/ruGoA9vquoDxp0mcoo/giphy.gif)
 
 ## [Varvalian Thing](https://www.dropbox.com/s/fjsi13wv11r6m1e/Varvailan%20BlueCursor.osk?dl=0)
 ![alt text](https://osu.ppy.sh/ss/16375609/7b65)
