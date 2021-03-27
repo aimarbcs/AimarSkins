@@ -38,10 +38,10 @@
 ![alt text](https://media.giphy.com/media/D0pPOLyVN74TmwVrqR/giphy.gif)
 
 ## [BDDav v4 cptnxn](https://www.dropbox.com/s/xxb51o6y1vrfqzz/BDDav%20v4%20cptnxn%20ver..osk?dl=0)
-![alt text](https://osu.ppy.sh/ss/16383961/2823)
+![alt text](https://media.giphy.com/media/DNUsmhRqueFL6hWTIi/giphy.gif)
 
 ## [Black 2014](https://www.dropbox.com/s/ik5dvcp0xp9bfy2/Black%202014.osk?dl=0)
-![alt text](https://osu.ppy.sh/ss/16383966/8a2d)
+![alt text](https://media.giphy.com/media/isn5YMUERLY7hHmtb7/giphy.gif)
 
 ## [Doomsday 2.9](https://www.dropbox.com/s/huzk7s7m2ksup2y/Doomsday%20v2.9.osk?dl=0)
 ![alt text](https://osu.ppy.sh/ss/16384234/46a3)
