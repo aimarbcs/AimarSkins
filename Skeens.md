@@ -17,7 +17,7 @@
 ![alt text](https://media.giphy.com/media/GrZ22C8bFaUBJ4NO3K/giphy.gif)
 
 ## [Ace Skin Mixerino](http://www.mediafire.com/file/4qqv328x584h7ry/Ace_Skin_Mixerino.osk/file)
-![alt text](https://osu.ppy.sh/ss/16375596/0543)
+![alt text](https://media.giphy.com/media/ZLgj4Otj35WmJPrXqk/giphy.gif)
 
 ## [BlooKC](https://drive.google.com/file/d/1Tn2H27r-I4A5O86NyRUSNAD3yEUz1o9S/view?usp=sharing)
 ![alt text](https://osu.ppy.sh/ss/16375605/3dd1)
