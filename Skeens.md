@@ -2,7 +2,7 @@
 
 
 ### Note that some skins are unavailable (i'm probably too lazy to add it LOL) .
-### Please contact me through discord, aimar#0112 , if link = ded.
+### Please contact me through discord, aimar#0112 if link = ded.
 
 ## [Flashy Hits](https://www.dropbox.com/s/qwxhpv2l05rm038/hits.rar?dl=0)
 ### download this if you want your 300s 100s 50s to be flashy like [GN Rustbell bimbim](https://www.dropbox.com/s/rt46pf01y6qau94/-GN%20Rustbell%20Blanks%20bimbim.osk?dl=0)
