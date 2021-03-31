@@ -8,7 +8,7 @@
 ### download this if you want your 300s 100s 50s to be flashy like [GN Rustbell bimbim](https://www.dropbox.com/s/rt46pf01y6qau94/-GN%20Rustbell%20Blanks%20bimbim.osk?dl=0)
 
 ## [RyuK(mystia)thing](https://www.dropbox.com/s/kn5gez33e8by6aj/RyuKMystiaThing.osk?dl=0)
-
+![alt text](https://media.giphy.com/media/f8tv5itvYkrKFjmAb0/giphy.gif)
 
 ## [Abyssal Thing](https://www.dropbox.com/s/y3nszd2ybt92r4d/Abyssal%20thing.osk?dl=0)
 ![alt text](https://media.giphy.com/media/kINozjn2ouR6noaKgK/giphy.gif)
